@@ -1,0 +1,2 @@
+# SIGED-certificado-preparatoria-autenticacion-MOPJ731211HGRNRN06
+MOPJ731211HGRNRN06
